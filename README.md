@@ -1,0 +1,1 @@
+About Litti Chokha Recipe: A traditional Bihari recipe, Litti Chokha is a delicious recipe that can be included in your lunch or dinner menu. Litti has a hearty filling of sattu along with spices like ajwain and kalonji. Served with Chokha made with mashed potatoes, this is a complete meal.
